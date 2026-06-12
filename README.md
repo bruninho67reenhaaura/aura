@@ -1,3 +1,5 @@
+# aura
+## ego
 https://youtu.be/LQbj_5-0CvM?t=90
 
 
